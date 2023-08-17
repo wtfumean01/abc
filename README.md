@@ -1,2 +1,2 @@
 ## Download
-<a href="https://evgames.xyz/discord"><img src="https://i.imgur.com/jcJ7HrT.png" /></a>
+<a href="https://evgames.xyz/discord"><img src="https://prnt.sc/lKLnzWpZu3yV" /></a>
